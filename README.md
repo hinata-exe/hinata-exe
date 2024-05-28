@@ -17,14 +17,14 @@
   <img src="https://readme-typing-svg.herokuapp.com?color=F70000&lines=𝐇𝐞𝐲+𝐈𝐭'𝐬+𝐦𝐞+𝐧𝐞𝐱;𝐈'𝐦+𝐏𝐚𝐬𝐬𝐢𝐨𝐧𝐚𝐭𝐞+𝐅𝐫𝐨𝐧𝐭𝐞𝐧𝐝+𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫.;𝐂𝐨𝐝𝐞𝐫+𝐇𝐚𝐜𝐤𝐞𝐫+𝐏𝐫𝐨𝐠𝐫𝐚𝐦𝐦𝐞𝐫++𝐒𝐨𝐟𝐭𝐰𝐚𝐫𝐞+𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫;𝐓𝐡𝐚𝐧𝐤𝐬+𝐅𝐨𝐫+𝐕𝐢𝐬𝐢𝐭𝐢𝐧𝐠++𝐌𝐲+𝐏𝐫𝐨𝐟𝐢𝐥𝐞+%E2%9D%A4%EF%B8%8F"> 
 
     
-[<img src="https://github.com/nobitaaaxd/nobitaaaxd/blob/master/resources/hr.gif"/>](https://github.com/nobitaaaxd)
+[<img src="https://github.com/hinata-exe/hinata-exe/blob/master/resources/hr.gif"/>](https://github.com/hinata-exe)
 
    ### ɢɪᴛʜᴜʙ ᴀɴᴀʟʏᴛɪᴄs ❤️✨
 
 [<img src="https://github-readme-stats.vercel.app/api?username=hinata-exe&count_private=true&show_icons=true&theme=chartreuse-dark&custom_title=What%27s+the+craic?&include_all_commits=true&hide_border=true&bg_color=000000" width="49%">](https://github.com/hinata-exe)  [<img src="https://github-readme-streak-stats.herokuapp.com/?user=hinata-exe&theme=chartreuse-dark&hide_border=True&bg_color=000000" width="49%">](https://github.com/hinata-exe)
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=hinata-exe&layout=compact&theme=chartreuse-dark)](https://github.com/hinata-exe)
 [<img src="https://github.com/hinata-exe/hinata-exe/blob/master/resources/hr.gif"/>](https://github.com/hinata-exe)
-![github card](https://github-readme-stats.vercel.app/api/pin/?username=Team-Japanese&repo=Japanese-X-Userbot&show_icons=true&hide=contribs,prs&cache_seconds=86400&theme=chartreuse-dark)
+![github card](https://github-readme-stats.vercel.app/api/pin/?username=hinata-exe &repo=us.string&show_icons=true&hide=contribs,prs&cache_seconds=86400&theme=chartreuse-dark)
 
 
 
