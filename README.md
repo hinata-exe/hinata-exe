@@ -43,7 +43,7 @@
 
 [<img src="https://novatorem.visualbean.vercel.app/api/spotify" alt="Spotify" width="75%" />](https://open.spotify.com/user/gktvx7fpy90p0vd9ggs41reov?si=t0SmOdTcRpqfZzvy6kNn8A)
 
-[<img src="(https://github.com/nobitaaxd/nobitaaxd/blob/master/resources/hr.gif"/>](https://github.com/nobitaaxd)
+[<img src="(https://github.com/hinata-exe/hinata-exe/blob/master/resources/hr.gif"/>](https://github.com/hinata-exe)
 
 
 
