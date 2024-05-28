@@ -33,13 +33,9 @@
 
 ### ᴄᴏɴᴛᴀᴄᴛ ᴍᴇ ❤️✨
 
-[![telegram badege](https://img.shields.io/badge/𝐍𝐨𝐛𝐢𝐭𝐚_𝐍𝐨𝐛𝐢-30302f?style=for-the-badge&logo=telegram)](https://t.me/nobitaa_xd)
-[![mailid badge](https://img.shields.io/badge/𝐍𝐨𝐛𝐢𝐭𝐚_𝐍𝐨𝐛𝐢-30302f?style=for-the-badge&logo=gmail)](mailto:uniquesandeepsharma@gmail.com)
-[![Instagram badge](https://img.shields.io/badge/𝐍𝐨𝐛𝐢𝐭𝐚_𝐍𝐨𝐛𝐢-30302F?style=for-the-badge&logo=instagram)](https://instagram.com/_nobitaaa_xd)
-[![Twitter badge](https://img.shields.io/badge/𝐍𝐨𝐛𝐢𝐭𝐚_𝐍𝐨𝐛𝐢-30302F?style=for-the-badge&logo=twitter)](https://x.com/nobitaa_xd)
-[![Snapchat badge](https://img.shields.io/badge/𝐍𝐨𝐛𝐢𝐭𝐚_𝐍𝐨𝐛𝐢-30302F?style=for-the-badge&logo=snapchat)](https://www.snapchat.com/add/nobitaa_xd?share_id=PoED6E1q1fc&locale=en-US)
-[![Pinterest badge](https://img.shields.io/badge/𝐍𝐨𝐛𝐢𝐭𝐚_𝐍𝐨𝐛𝐢-30302F?style=for-the-badge&logo=pinterest)](https://pin.it/2RJ6SRT)
-[![YouTube badge](https://img.shields.io/badge/𝐍𝐨𝐛𝐢𝐭𝐚_𝐍𝐨𝐛𝐢-30302F?style=for-the-badge&logo=youtube)](https://youtube.com/@nobitaa_xd?si=Ehk1iSwAZj_2Nl86)
+[![telegram badege](https://img.shields.io/badge/𝐍𝐞𝐱-30302f?style=for-the-badge&logo=telegram)](https://t.me/WHO182)
+[![mailid badge](https://img.shields.io/badge/𝐍𝐞𝐱-30302f?style=for-the-badge&logo=gmail)](mailto:a.m@merry.pink)
+[![Instagram badge](https://img.shields.io/badge/𝐍𝐞𝐱-30302F?style=for-the-badge&logo=instagram)](https://instagram.com/_pvtt.qn)
 
     
    ### ᴄᴜʀʀᴇɴᴛʟʏ ᴏɴ sᴘᴏᴛɪғʏ ❤️✨
