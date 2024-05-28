@@ -9,7 +9,7 @@
  -->    <img align="middle" src="https://profile-counter.glitch.me/hinata-exe/count.svg" />
 </p>
 
-![IMG_20240307_204711_171](https://github.com/hinata-exe/hinata-exe/assets/104634763/23cf09f4-e640-403f-83ed-b67e81b468df)
+![https://graph.org/file/f05597bfdae70fcea5552.jpg](https://github.com/hinata-exe/hinata-exe/assets/104634763/23cf09f4-e640-403f-83ed-b67e81b468df)
 
 
 
