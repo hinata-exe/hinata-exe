@@ -24,7 +24,7 @@
 [<img src="https://github-readme-stats.vercel.app/api?username=hinata-exe&count_private=true&show_icons=true&theme=chartreuse-dark&custom_title=What%27s+the+craic?&include_all_commits=true&hide_border=true&bg_color=000000" width="49%">](https://github.com/hinata-exe)  [<img src="https://github-readme-streak-stats.herokuapp.com/?user=hinata-exe&theme=chartreuse-dark&hide_border=True&bg_color=000000" width="49%">](https://github.com/hinata-exe)
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=hinata-exe&layout=compact&theme=chartreuse-dark)](https://github.com/hinata-exe)
 [<img src="https://github.com/hinata-exe/hinata-exe/blob/master/resources/hr.gif"/>](https://github.com/hinata-exe)
-![github card](https://github-readme-stats.vercel.app/api/pin/?username=hinata-exe &repo=us.string&show_icons=true&hide=contribs,prs&cache_seconds=86400&theme=chartreuse-dark)
+
 
 
 
